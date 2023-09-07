@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @NgabMail
-- 👀 I’m interested in Cyber Security dll  
+- 👀 I’m interested in Cyber Security, Code all with technology etc  
 - 🌱 I’m currently learning banyak
-- 💞️ I’m looking to collaborate on masih belajar
+- 💞️ I’m looking to learn masih belajar
 - 📫 How to reach me Gk tau masih baru soalnya 
 
 <!---
